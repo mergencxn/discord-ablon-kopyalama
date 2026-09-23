@@ -1,2 +1,1 @@
-demo versiyon gibi birseyde daha. iletisim kurun sorunlara bakalim
-discord sadecesenvarsin
+full versiyon cıktı
